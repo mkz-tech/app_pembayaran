@@ -9,4 +9,4 @@ Dikerjakan Oleh:
 Moh. Anwar Musadad [23104410116]
 Muhammad Riza Kumalasari [23104410112]
 Miftakul Huda [23104410099]
-Mahsunah Ulfah 
+Mahsunah Ulfah [25104415001]
